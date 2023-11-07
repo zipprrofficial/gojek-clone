@@ -1,4 +1,4 @@
-Gojek is a leading Indonesian on-demand platform connecting users to multiple local services. Seeing the immense success of such super-apps, Zipprr offers a fully featured <a href="https://zipprr.com/category/gojek-clone/">Gojek clone script</a> to help others enter this market.
+Gojek is a leading Indonesian on-demand platform connecting users to multiple local services. Seeing the immense success of such super-apps, Zipprr offers a fully featured <a href="https://zipprr.com/gojek-clone/">Gojek clone script</a> to help others enter this market.
 
 <h2><b>Advanced Features of Zipprr Gojek Like App</b></h2>
 
